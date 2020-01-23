@@ -18,7 +18,7 @@ I grew up in Kathmandu valley which is surrounded by many hills where mountain b
 (Image by Susan Maharjan)
 - **Climbing**
 
-I have two type of climbing experience. Firstly, I have done indoor wall climbing. Secondly, I went on a treak to [Panch Pokhari](https://en.wikipedia.org/wiki/Panch_Pokhari) with my cousins in 2017 where I climber lots of high hills for 5 days. We went up till 4500 meter altitude.
+I have two type of climbing experience. Firstly, I have done indoor wall climbing. Secondly, I went on a treak to [Panch Pokhari](https://en.wikipedia.org/wiki/Panch_Pokhari) with my cousins in 2017 where I climber lots of high hills for 5 days. We went up till 4500 meter altitude. During this treak, I had a moment when I was 2 days walk away from nearest village, no any means of connection with outside world, and I was walking on a narrow path, aproximately 2 feet wide, full of icy snow, going around hill where I can see several marks of land slides that had occured and I have no idea how far I may fall beause I could only see clouds about 50 meters below me. When ever I think about this moment, I get thrilled by thinking what could have happend.
 
 ![Somewhere on the way to Panch Pokhari](https://scontent.fcou1-1.fna.fbcdn.net/v/t1.0-0/p206x206/16938606_1334107123294065_6737535520513718917_n.jpg?_nc_cat=110&_nc_ohc=P5jFER_fLVkAX8auQlf&_nc_ht=scontent.fcou1-1.fna&_nc_tp=1002&oh=d95530fa3b2298becea7d84ba2409216&oe=5ECC7DFC "Image by Susan Maharjan. Treakking in Panch Pokhari")
 
